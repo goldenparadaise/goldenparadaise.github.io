@@ -1,0 +1,1 @@
+# goldenparadaise.github.io
